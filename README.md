@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-    <a href="https://rentry.co/seraphiel_here">⁠♡</a>
+    <a href="https://solarswag.straw.page/">⁠♡</a>
 </p>
